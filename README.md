@@ -1,2 +1,2 @@
-# qq1449429156.github.io
+# yixin.github.io
 舔狗日记
